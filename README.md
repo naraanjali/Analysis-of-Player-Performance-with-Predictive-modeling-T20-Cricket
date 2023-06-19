@@ -7,4 +7,4 @@ Anjali Nara (700745071)
 
 
 
-Please find the drive link for the attached vedio file: https://drive.google.com/file/d/1v3Jpxz2648zEtP6GmyYl5Bxd26SB413Q/view?usp=sharing
+Please find the drive link for the attached video file: https://drive.google.com/file/d/1v3Jpxz2648zEtP6GmyYl5Bxd26SB413Q/view?usp=sharing
